@@ -7,7 +7,7 @@ OBS: Existe alguns usuarios já cadastrados
 
 
 1. sjobs@hotmail.com
-2. alan@gmail.com
+2.assismac200@gmail.com
 
 
 Para cadastrar um novo, so basta entrar com o email
